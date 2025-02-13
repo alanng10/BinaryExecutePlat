@@ -9,3 +9,5 @@ The format includes binary format, op code kind, kernel call kind and kernel cal
 Any binary in the format can be executed on the plat.
 
 One Binary Execute Plat with port on Network is enough element to execute binary.
+
+One Binary Execute Plat with one format is enough element.
