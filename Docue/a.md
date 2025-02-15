@@ -2,6 +2,8 @@
 
 Binary Execute Plat is plat to execute binary.
 
+Binary Execute Plat is Binary System.
+
 Binary Execute Plat executes binary in a format.
 
 The format includes binary format, op code kind, kernel call kind and kernel call format.
