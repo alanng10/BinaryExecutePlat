@@ -32,6 +32,8 @@ One Binary Execute Plat has park cross arch.
 
 One Binary Execute Plat has park cross arch worth.
 
+One Binary Execute Plat has park cross style.
+
 One Binary Execute Plat has park cross style worth.
 
 One Binary Execute Plat has park cross style value.
