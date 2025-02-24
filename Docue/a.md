@@ -16,24 +16,24 @@ One Binary Execute Plat with port on Network is enough element to execute binary
 
 One Binary Execute Plat with one format is enough element.
 
-One Binary Execute Plat is achievable. 
+One Binary Execute Plat is achievable.
 
-One Binary Execute Plat has park cross. 
+One Binary Execute Plat has park cross.
 
-One Binary Execute Plat has park cross worth. 
+One Binary Execute Plat has park cross worth.
 
-One Binary Execute Plat has park cross value. 
+One Binary Execute Plat has park cross value.
 
-One Binary Execute Plat has park cross benefit. 
+One Binary Execute Plat has park cross benefit.
 
-One Binary Execute Plat has park cross marry. 
+One Binary Execute Plat has park cross marry.
 
-One Binary Execute Plat has park cross arch. 
+One Binary Execute Plat has park cross arch.
 
-One Binary Execute Plat has park cross arch worth.
+One Binary Execute Plat has park cross arch worth. 
 
-One Binary Execute Plat has park cross style worth. 
+One Binary Execute Plat has park cross style worth.
 
-One Binary Execute Plat has park cross style value. 
+One Binary Execute Plat has park cross style value.
 
-One Binary Execute Plat has park cross style benefit. 
+One Binary Execute Plat has park cross style benefit.
