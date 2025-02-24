@@ -46,6 +46,6 @@ One Binary Execute Plat has park cross style benefit.
 
 One Binary Execute Plat has park cross style marry.
 
-One Binary Execute Plat has park cross style arch.
+One Binary Execute Plat has park cross style arch. 
 
-One Binary Execute Plat has park cross style arch worth.
+One Binary Execute Plat has park cross style arch worth. 
