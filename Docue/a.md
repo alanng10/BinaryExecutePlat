@@ -32,31 +32,31 @@ One Binary Execute Plat has park arch worth.
 
 One Binary Execute Plat has park cross.
 
-One Binary Execute Plat has park cross worth. 
+One Binary Execute Plat has park cross worth.
 
-One Binary Execute Plat has park cross value. 
+One Binary Execute Plat has park cross value.
 
-One Binary Execute Plat has park cross benefit. 
+One Binary Execute Plat has park cross benefit.
 
-One Binary Execute Plat has park cross marry. 
+One Binary Execute Plat has park cross marry.
 
-One Binary Execute Plat has park cross arch. 
+One Binary Execute Plat has park cross arch.
 
-One Binary Execute Plat has park cross arch worth. 
+One Binary Execute Plat has park cross arch worth.
 
-One Binary Execute Plat has park cross style. 
+One Binary Execute Plat has park cross style.
 
-One Binary Execute Plat has park cross style worth. 
+One Binary Execute Plat has park cross style worth.
 
-One Binary Execute Plat has park cross style value. 
+One Binary Execute Plat has park cross style value.
 
-One Binary Execute Plat has park cross style benefit. 
+One Binary Execute Plat has park cross style benefit.
 
-One Binary Execute Plat has park cross style marry. 
+One Binary Execute Plat has park cross style marry.
 
-One Binary Execute Plat has park cross style arch. 
+One Binary Execute Plat has park cross style arch.
 
-One Binary Execute Plat has park cross style arch worth. 
+One Binary Execute Plat has park cross style arch worth.
 
 One Binary Execute Plat has park kind.
 
