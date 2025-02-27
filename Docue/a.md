@@ -26,7 +26,7 @@ One Binary Execute Plat has park benefit.
 
 One Binary Execute Plat has park marry.
 
-One Binary Execute Plat has park land. 
+One Binary Execute Plat has park land.
 
 One Binary Execute Plat has park arch.
 
