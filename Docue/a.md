@@ -58,22 +58,22 @@ One Binary Execute Plat has park cross style arch.
 
 One Binary Execute Plat has park cross style arch worth.
 
-One Binary Execute Plat has park kind. 
+One Binary Execute Plat has park kind.
 
-One Binary Execute Plat has park kind arch. 
+One Binary Execute Plat has park kind arch.
 
-One Binary Execute Plat has park kind arch worth. 
+One Binary Execute Plat has park kind arch worth.
 
-One Binary Execute Plat has park kind worth. 
+One Binary Execute Plat has park kind worth.
 
-One Binary Execute Plat has park kind value. 
+One Binary Execute Plat has park kind value.
 
-One Binary Execute Plat has park kind benefit. 
+One Binary Execute Plat has park kind benefit.
 
-One Binary Execute Plat has park kind marry. 
+One Binary Execute Plat has park kind marry.
 
-One Binary Execute Plat has park one binary. 
+One Binary Execute Plat has park one binary.
 
-One Binary Execute Plat has park one class. 
+One Binary Execute Plat has park one class.
 
-One Binary Execute Plat has park one source. 
+One Binary Execute Plat has park one source.
