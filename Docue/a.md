@@ -42,7 +42,7 @@ One Binary Execute Plat has park cross benefit.
 
 One Binary Execute Plat has park cross marry.
 
-One Binary Execute Plat has park cross land. 
+One Binary Execute Plat has park cross land.
 
 One Binary Execute Plat has park cross arch.
 
