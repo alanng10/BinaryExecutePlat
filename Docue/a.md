@@ -80,8 +80,8 @@ One Binary Execute Plat has park kind arch.
 
 One Binary Execute Plat has park kind arch worth.
 
-One Binary Execute Plat has park one binary.
+One Binary Execute Plat has park one binary. 
 
-One Binary Execute Plat has park one class.
+One Binary Execute Plat has park one class. 
 
-One Binary Execute Plat has park one source.
+One Binary Execute Plat has park one source. 
