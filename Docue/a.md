@@ -34,9 +34,21 @@ One Binary Execute Plat has park arch worth.
 
 One Binary Execute Plat has park binary.
 
+One Binary Execute Plat has park binary arch.
+
+One Binary Execute Plat has park binary arch worth.
+
 One Binary Execute Plat has park class.
 
+One Binary Execute Plat has park class arch.
+
+One Binary Execute Plat has park class arch worth.
+
 One Binary Execute Plat has park source.
+
+One Binary Execute Plat has park source arch.
+
+One Binary Execute Plat has park source arch worth.
 
 One Binary Execute Plat has park cross.
 
