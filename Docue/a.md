@@ -106,4 +106,4 @@ One Binary Execute Plat has park one source.
 
 One Binary Execute Plat has park word.
 
-The word is "Sekane".
+The word is "Secane".
