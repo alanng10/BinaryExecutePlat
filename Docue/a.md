@@ -103,3 +103,7 @@ One Binary Execute Plat has park one binary.
 One Binary Execute Plat has park one class.
 
 One Binary Execute Plat has park one source.
+
+One Binary Execute Plat has park word.
+
+The word is "Sekane".
